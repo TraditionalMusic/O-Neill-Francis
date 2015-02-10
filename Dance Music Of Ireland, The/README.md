@@ -1,1 +1,1 @@
-https://urresearch.rochester.edu/institutionalPublicationPublicView.action?institutionalItemVersionId=24992
+http://hdl.handle.net/1802/25425
